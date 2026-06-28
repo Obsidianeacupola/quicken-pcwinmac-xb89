@@ -1,4 +1,4 @@
-# 
+# Automatic Quicken plugins for Mac OS | Smart Quicken plugins for PC Windows. Featuring tax-deductible tracking and cloud sync — optimized for maximum performance on every platform.
 
 
 
